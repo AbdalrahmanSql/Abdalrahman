@@ -28,7 +28,5 @@ Stay tuned — new projects will be uploaded soon!
 ## 📫 Contact Me
 
 - 📧 Email: [abdalrahmanabashar@gmail.com](mailto:abdalrahmanabashar@gmail.com)
-- 🌐 LinkedIn: https://www.linkedin.com/in/abdalrahman-abashar-ba01b8257?lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_contact_details%3BDfJmfihXRMCSJVHB6xBqgQ%3D%3D
----
 
 🧠 *"Without data, you're just another person with an opinion."* – W. Edwards Deming
